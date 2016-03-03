@@ -1,2 +1,2 @@
 # studivo.github.io
-Create Something Today
+You Rise We Grow
